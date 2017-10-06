@@ -9,4 +9,4 @@ I love the music made by Ludovico Einaudi, and almost all of them are my favoria
 I like Taiwanese food so much, so does international food, I love to eat.
 
 ### Contact
-The best way to get in touch with me is [on Instagram](instagram.com/chelsealiao0208).
+The best way to get in touch with me is [on Instagram](https://www.instagram.com/chelsealiao0208/).
